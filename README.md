@@ -1,1 +1,3 @@
-# how-to-retire-as-a-disaster-necromancer
+# How to Retire as a Disaster Necromancer
+Han Ji-hyuck, le nécromancien qui a sauvé l’humanité sur le continent de Seron. Il est revenu sur Terre en espérant une retraite paisible et heureuse, mais dès le premier jour, ses plans de retraite ont complètement échoué.
+Le protagoniste, Han Ji-hyuck, âgé de vingt ans, a été convoqué sur le continent de Seron par un sorcier nommé Teros et a vécu sa vie en tant que nécromancien. Après de nombreuses années, Ji-hyuck, qui a vaincu le Roi Démon, retourne sur Terre, mais en raison des lois de la causalité, la Terre qu’il retrouve n’est plus celle dont il se souvenait – elle est désormais remplie de Portes et de monstres. Pour ne rien arranger, les trésors qu’il avait ramenés avec lui avaient disparu. N’ayant pas le choix, Ji-hyuck est devenu un Éveillé de rang F et a commencé à gagner de l’argent.
